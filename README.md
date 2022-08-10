@@ -1,7 +1,8 @@
 # testegitbash
 
 
-![LOGO](https://cdn.discordapp.com/attachments/991463056641105960/1007055346419892275/unnamed.png)
+![rup](https://cdn.discordapp.com/attachments/991463056641105960/1007055346419892275/unnamed.png) 
+![trimbo](https://cdn.discordapp.com/attachments/991463056641105960/1007056657324449882/trimbo.png)
 
 batman dando pirueta
 
